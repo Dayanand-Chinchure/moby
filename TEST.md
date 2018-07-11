@@ -1,2 +1,2 @@
 Dayanand Chinchure DEV moby
-dchinchure@gmail.com PUNE
+dchinchure@gmail.com PUNE,INDIA
