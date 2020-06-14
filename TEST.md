@@ -1,1 +1,2 @@
-dchinchure@gmail.com Pune,Maharashtra,India
+Dayanand Chinchure DEV moby
+dchinchure@gmail.com PUNE,INDIA
